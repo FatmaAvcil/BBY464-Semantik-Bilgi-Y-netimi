@@ -1,0 +1,1 @@
+# BBY464-Semantik-Bilgi-Y-netimi
